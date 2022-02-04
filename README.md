@@ -1,6 +1,8 @@
 # DOPE-RAIDER
 
 
+DISCORD: Grave#5667
+Discord Server: https://discord.gg/WGb8KSkbWw
 
 
 
